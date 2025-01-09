@@ -1,2 +1,0 @@
-# Bismilla Hir Rahmanir Rahim
-
